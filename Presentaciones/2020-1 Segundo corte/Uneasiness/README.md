@@ -1,5 +1,9 @@
 # Uneasiness
 Por Johanns Mauricio Canaval Ruiz (2020)
+[Haga click aquí para ir a un vídeo con el audio y la partitura](https://1drv.ms/v/s!Asr_LkIfjTCzhN819D36JOM1aeZrWQ?e=EiAj8E)
+Si no puede abrirlo, por favor descargue el archivo mp3 disponible junto a las partituras.
+
+
 ## Presentación
 Uneasiness es un rondó para flauta, clarinete en Si bemol y fagot tipo de arco con estructura A B A’ C A’’ B’ A. 
 ## Análisis (en palabras)
